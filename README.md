@@ -1,16 +1,19 @@
-## Hi there 👋
+Seja bem vindo ao meu perfil🤙
 
-<!--
-**Andre1722/Andre1722** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Meu nome é André Henrique Andrade
 
-Here are some ideas to get you started:
+- Atleta
+- Estudande
+- Ronaldelte
+- Real Madrid🤍
+- Bolsonarista
+- Like a machine
+- 🥇 🧠 🔱
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+
+
+
+  
+![]([https://media1.tenor.com/m/99hLRKKaC9IAAAAC/rfnn.gif)
